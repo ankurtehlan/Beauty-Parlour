@@ -1,1 +1,1 @@
-# BEAUTY-PARLOUR-
+# Beauty-Parlour-
